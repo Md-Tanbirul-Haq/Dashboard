@@ -1,1 +1,1 @@
-Link : https://md-tanbirul-haq.github.io/Dashboard-1/
+Link : https://md-tanbirul-haq.github.io/Dashboard/
